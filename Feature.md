@@ -1,1 +1,1 @@
-cool feature coming soon
+cool feature coming soon, nintendo switch
